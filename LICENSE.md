@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with quantitative Polymarket bot | scalping-strategies + multi-exchange-support, the #1 bot. Includes scalping-strategies and
 
 
 
